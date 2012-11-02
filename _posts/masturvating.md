@@ -1,4 +1,4 @@
-title: Mochi World
+title: Masturvating
 date: 2012-11-01
 
 All my friends are doing real work
